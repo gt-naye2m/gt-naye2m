@@ -6,7 +6,7 @@
   - email : naye2m@outlook.com (personal mail)
 - 😄 Pronouns: Nayeem
 
-### I love coffeee and cookies
+### I love coffeee☕ and cookies🍪
 
 <!---
 gt-naye2m/gt-naye2m is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
